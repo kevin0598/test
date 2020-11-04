@@ -1,1 +1,2 @@
 # Kevin Suharto
+Location : Makassar
